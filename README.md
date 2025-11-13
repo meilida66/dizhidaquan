@@ -1,2 +1,14 @@
-# dizhidaquan
 各大导航发布页地址大全
+妙物指南发布页：https://miaowuzhinan.top<br>
+蓝色导航发布页：https://lansedaohang.link<br>
+传送门导航发布页：https://csmdh.top<br>
+星空入口导航发布页：https://xingkongrukou.top<br>
+萌翻导航发布页：https://mengfandaohang.top/<br>
+寻欢阁导航发布页：https://xunhuange.top/<br>
+柠檬导航发布页：https://ningmengdh.top/<br>
+你懂的导航发布页：https://nidongdedh.top/<br>
+第一导航发布页：https://diyidaohang.top/<br>
+小黄鸭导航发布页：https://xhy-dh.top/<br>
+帝王会所导航发布页：https://diwangdh.top/<br>
+求地址导航发布页：https://www.qiudizhi.top/<br>
+宅宅导航发布页：https://mmyjs.top/<br>
